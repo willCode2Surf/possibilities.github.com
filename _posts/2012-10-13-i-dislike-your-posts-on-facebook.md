@@ -9,7 +9,7 @@ Facebook is so trashy these days. And I'm not talking about the corporation. The
 
 Again, if I see you doing these things I love and/or respect you but I die a little every time:
 
-1. Complaints about Facebook trying to make money. This usually comes up when someone has a Facebook page and their mad that they're being extorted to pay if they want more than x percent of their fans to see their posts. Everyone involved (including me) got into bed with this advertising company's free app and now we're surprised that they want to monetize? I'd SO much rather they charge people and companies to promote their content than almost every other option.
+1. Complaints about Facebook trying to make money. This usually comes up when someone has a Facebook page and they're mad that they're being extorted to pay if they want more than x percent of their fans to see their posts. Everyone involved (including me) got into bed with this advertising company's free app and now we're surprised that they want to monetize? I'd SO much rather they charge people and companies to promote their content than almost every other option.
 
 2. Text superimposed on images and "bumper sticker logic". OK, I get it someone who knows someone you know (or someone on reddit) took the time to open up photoshop and type something witty over a powerful image but really... is this the way we communicate now? I'd be more interested in a less powerful message that you took the time to think through and type into the little box at the top of your feed.
 
