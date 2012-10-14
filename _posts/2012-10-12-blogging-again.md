@@ -9,6 +9,6 @@ Yup, here I go again... I've started and quit blogging just about every year for
 
 The solution: write more often about smaller less lofty things and don't worry about sounding smart. The end.
 
-P.s. I'm using Jekyll because it's awesome and at some point I might make things look nicer... but for now it's all about taking action!
+P.s. I'm using Jekyll because it's awesome. At some point I might make things look nicer... but for now it's all about taking action!
 
 *12/10/12 - Mike Bannister*
